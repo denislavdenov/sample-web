@@ -2,4 +2,5 @@ visit Bulgaria
 
 ## things to do
 
-- visit vansko
+- visit Bansko
+- visit Sunny Beach
