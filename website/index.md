@@ -4,4 +4,4 @@ visit Bulgaria
 
 - visit Bansko
 - visit Sunny Beach
-- visit barna
+- visit Varna
